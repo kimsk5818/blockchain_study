@@ -17,4 +17,4 @@
 - 최지은
 - 구세영
 
-images.githubusercontent.com/31407544/46522567-16672500-c8be-11e8-8866-586ddc63f217.jpeg)
+![c211f2c3-f898-45dc-aef0-ba549323f328](https://user-images.githubusercontent.com/31407544/46522621-3f87b580-c8be-11e8-954c-7990ff59d70f.jpeg)
