@@ -16,3 +16,5 @@
 - 김윤지
 - 최지은
 - 구세영
+
+images.githubusercontent.com/31407544/46522567-16672500-c8be-11e8-8866-586ddc63f217.jpeg)
